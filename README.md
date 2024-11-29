@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mohammad AAdil
 
-- 🌱 I’m currently pursuing mu bachelor degree(Btech) from kanpur Institute of technology , Kanpur
+- 🌱 I’m currently pursuing my bachelor degree(Btech) from kanpur Institute of technology , Kanpur
 - 💞️  
 
 <!---
